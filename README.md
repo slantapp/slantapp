@@ -1,0 +1,2 @@
+- 👋 Hi, we'r @slantapp
+- 📫 reach out to us at slantappio@gmail.com | dev@slantapp.com
